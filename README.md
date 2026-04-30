@@ -35,8 +35,6 @@ Estou constantemente atualizando meus conhecimentos e buscando novos desafios na
 
 ###
 
-<h3 align="left">Connect with me!</h3>
-
 
 </div>
 
